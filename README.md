@@ -18,6 +18,11 @@
 
 [Shell Shockers](https://shellsocks.com)
 
+![Screenshot 2023-01-25 7 55 28 AM](https://user-images.githubusercontent.com/123520027/214596364-75af621f-5adc-4763-a8fb-daf0d10f9776.png)
+
+[1v1.lol](https://3kh0.github.io/projects/1v1lol/index.html#)
+
+
 ###### psst will be more in future!
 
    #[click if teachers coming](https://www.ixl.com)
