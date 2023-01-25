@@ -75,6 +75,20 @@ Bruhhhhhhhhhhhhhhhhhhhhh it wont let me add images
 
 [SLOPE](https://slope-game.github.io)                     
                                                     
-                                                    its ten i have not time for effort lol
+                                                   
+                                                   
+                                                   
+                                                                              its ten i have not time for effort lol
+
+
+
+
+# Platforms!
+
+
+![Screenshot_20230124_112841](https://user-images.githubusercontent.com/123520027/214495711-7081a400-a261-475a-aa8c-be3b532f2a79.png)
+
+[doodle jump](https://wanted5games.com/games/html5/doodle-jump-new-en-s-iga-cloud/index.html?pub=10)
+
 
 
