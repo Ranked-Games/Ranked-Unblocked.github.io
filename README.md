@@ -3,4 +3,4 @@
 
 [Shell Shockers](https://shellsocks.com)
 
-[krunker rippof](https://www.google.com/imgres?imgurl=https%3A%2F%2Fkirka.io%2Fassets%2Fimg%2Flogo-winter.29ffeff4.svg&imgrefurl=https%3A%2F%2Fkirka.io%2F&tbnid=Wj58oPH7qiB8RM&vet=12ahUKEwjXx9v0y-H8AhXTPUQIHSlxD4MQMygAegUIARDEAQ..i&docid=31X_WyoF8Aj7AM&w=800&h=461&q=kirkaio%20logo&client=opera-gx&ved=2ahUKEwjXx9v0y-H8AhXTPUQIHSlxD4MQMygAegUIARDEAQ)
+[krunker rippof](https://www.playschoolgames.com/play/kirka-io)
