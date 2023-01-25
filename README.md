@@ -48,3 +48,24 @@
 
 
 [Basket champ](https://wanted5games.com/games/html5/basket-champ-new-en-s-iga-cloud/index.html?pub=10)
+
+
+![Screenshot_20230124_104738](https://user-images.githubusercontent.com/123520027/214489705-6fad8e45-ad01-4c80-a7a6-d0f500bb4774.png)
+
+[basketball masters](https://wanted5games.com/games/html5/basketball-master-new-en-s-iga-cloud/index.html?pub=10)
+
+![Screenshot_20230124_105026](https://user-images.githubusercontent.com/123520027/214490094-ee2bd2d6-df30-4366-be04-5b9cb7b8ac89.png)
+
+[Basket random?](https://html5.gamedistribution.com/bf1268dccb5d43e7970bb3edaa54afc8/)
+
+###### Theres still more to come!!!!!!!!!!
+
+# SLOPES
+
+###### psst this section is for my best friend
+
+Bruhhhhhhhhhhhhhhhhhhhhh it wont let me add images
+
+
+[SLOPE](https://slope-game.github.io)                     its ten i have not time for effort lol
+
