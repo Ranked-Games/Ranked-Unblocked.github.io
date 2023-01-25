@@ -108,3 +108,8 @@ Bruhhhhhhhhhhhhhhhhhhhhh it wont let me add images
 
 
 [Cookie Clicker](https://trixter9994.github.io/Cookie-Clicker-Source-Code/)
+
+
+<iframe src="https://html5.gamedistribution.com/bf1268dccb5d43e7970bb3edaa54afc8/?gd_sdk_referrer_url=https://www.ry-d-er.github.io/{game-path}" width="900" height="600" scrolling="none" frameborder="0"></iframe>
+
+
