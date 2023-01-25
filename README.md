@@ -77,3 +77,4 @@ Bruhhhhhhhhhhhhhhhhhhhhh it wont let me add images
                                                     
                                                     its ten i have not time for effort lol
 
+
