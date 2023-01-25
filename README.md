@@ -5,4 +5,20 @@
 
 ###### psst will be more in future!
 
-# MY VERY COOL PROXY
+# MY VERY COOL PROXYS
+
+[holy](https://t.ly/5g8q)
+
+[incagnito](https://incog.dev)
+
+[hyper](https://hypertabs.cc)
+
+[tb](https://terbium.ga)
+
+[ill](https://illusive.app)
+
+[NEB](https://nebulaproxy.io)
+
+[rad](https://radon.games)
+
+#REMEMBER THERES MORE TO COME
